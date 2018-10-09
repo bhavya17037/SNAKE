@@ -1,1 +1,1 @@
-play it bros
+Play this awesome game brothers!
